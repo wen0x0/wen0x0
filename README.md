@@ -2,8 +2,6 @@
 
 Just a person, curious about computers.  
 
----
-
-![rain-night](https://github.com/user-attachments/assets/6a7fb964-bb01-414f-a4e5-d81a0e7a3caf)
+![future](https://github.com/user-attachments/assets/52de9367-733e-4ba9-8289-d934ba3c83ae)
 
 ---
