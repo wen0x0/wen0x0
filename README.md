@@ -1,3 +1,3 @@
-# 👋 Hi, I'm Wen  
+Hi, I'm Wen  
 
-Just a person, curious about computers.  
+Just a person who curious about computer science things.  
